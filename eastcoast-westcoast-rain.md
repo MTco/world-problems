@@ -1,0 +1,1 @@
+***Minimally*** amounts at a time, reduce the height of the [Rocky Mountains](https://en.wikipedia.org/wiki/Rocky_Mountains); ["Seven Worlds One Planet" S1:E6: North America](https://www.imdb.com/title/tt10340178/ "'Seven Worlds One Planet' S1:E6: North America") identifies the height of the Rockies as blocking rain from reaching the west coast
